@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @DivyaaSharma
+- 👀 I’m hiring Manager
+- 💞️ I’m looking candidates for IT PM, Project Coordinator,BDE, BDM profiles.
+- 📫 How to reach me 
